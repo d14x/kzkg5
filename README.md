@@ -1,4 +1,4 @@
-- 👋 Hi, I’m nothhing
+- 👋 Hi, I’m nothing
 - 👀 I’m interested in nuclear
 - 🌱 I’m currently learning radioactive
 - 💞️ I’m looking to collaborate on nuclear forum
